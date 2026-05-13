@@ -1,0 +1,1 @@
+# Paler_WebDesignProject_2026
